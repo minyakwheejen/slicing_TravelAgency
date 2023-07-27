@@ -1,3 +1,3 @@
-# latihan_slicing_TravelAgencyxHerlambangRamadhanixAgusWil
+slicing_TravelAgencyxHerlambangRamadhanixAgusWil
 
 https://minyakwheejen.github.io/latihan_slicing_TravelAgencyxHerlambangRamadhanixAgusWil/
